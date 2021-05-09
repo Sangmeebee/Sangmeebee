@@ -1,4 +1,4 @@
-### Hyeongon 'Simon' Kim / @hyeongon.simon
+### Sangmin Kim / @Sangmeebee
 
 Currently working as Android Developer in South Korea.
 
