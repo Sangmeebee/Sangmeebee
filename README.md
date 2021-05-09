@@ -1,5 +1,3 @@
-### Hi there 👋
-
 ### 📫  Find me at
 
 -   Mail: [apfhdznzl@gmail.com](mailto:apfhdznzl@gmail.com)
